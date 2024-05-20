@@ -1,3 +1,6 @@
 ![Screenshot from 2024-05-20 18-36-47](https://github.com/ValmikiPrasad/lattice/assets/86890398/f5e49784-327a-4311-9d12-a889dff2efca)
 ![Screenshot from 2024-05-20 18-36-12](https://github.com/ValmikiPrasad/lattice/assets/86890398/d00dd5ab-18b2-4275-b002-e8f92213d77f)
 ![Screenshot from 2024-05-20 18-36-28](https://github.com/ValmikiPrasad/lattice/assets/86890398/5c08054e-2f61-41c3-8b38-7be85386f809)
+![Screenshot from 2024-05-20 18-48-34](https://github.com/ValmikiPrasad/lattice/assets/86890398/9b256a09-3bae-46f3-8c9a-f93b7296d5d0)
+![Screenshot from 2024-05-20 18-47-01](https://github.com/ValmikiPrasad/lattice/assets/86890398/d2f98ab4-fec3-4b66-81f9-51322542dd4a)
+![Screenshot from 2024-05-20 18-47-58](https://github.com/ValmikiPrasad/lattice/assets/86890398/a8edb226-156b-4a97-a4d1-db6dcfd9a4ab)
